@@ -24,10 +24,9 @@
 * **Multidisciplinary Scope:** We welcome submissions from all areas of science, fostering interdisciplinary knowledge exchange.
 * **International Reach:** Your research will be accessible to a global community of researchers and scholars.
 
-**Keywords:** Multidisciplinary Journal, International Science Journal, Rapid Publication Journal, Low APC Journal, Open Access Journal, Scientific Research, Peer-Reviewed Journal, Manuscript Submission, Journal Archive, Scientific Publishing.
+Multidisciplinary Journal, International Science Journal, Rapid Publication Journal, Low APC Journal, Open Access Journal, Scientific Research, Peer-Reviewed Journal, Manuscript Submission, Journal Archive, Scientific Publishing.
 
 **Stay Connected:**
 
-[*(Optional: Add links to social media or other relevant platforms here)*]
 
 **We look forward to your submissions!**
